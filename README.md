@@ -1,5 +1,14 @@
 ### Hi there 👋
 
+I am Anna Nava, from Lecco (Italy).
+
+- 👩‍🎓 I have a *Bachelor degree in Mathematics*.
+- 📖 I'm currently attending the *Master Degree in Data Science* at the University of Milan-Bicocca.
+- 🇦🇹 I attended the Alpen-Adria-Universität Klagenfurt as an Erasmus student.
+- ⛺ I'm in love with multi-day trekkings.
+- 🎲 Sometimes, during my spare time, I travel around Faerûn.
+- 📧 How to reach me: anva98@gmail.com .
+
 <!--
 **anna-38/anna-38** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
