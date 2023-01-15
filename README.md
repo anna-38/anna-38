@@ -2,9 +2,8 @@
 
 I am Anna Nava, from Lecco (Italy).
 
-- 👩‍🎓 I have a **Bachelor degree in Mathematics**.
-- 📖 I'm currently attending the **Master Degree in Data Science** at the University of Milan-Bicocca.
-- 🇦🇹 I attended the Alpen-Adria-Universität Klagenfurt as an Erasmus student.
+- 👩‍🎓 I have a **Bachelor degree in Mathematics** and on the 20th of October 2022, I graduated in **Data Science** at the University of Milan-Bicocca.
+- 🇦🇹 I attended the Alpen-Adria-Universität Klagenfurt as an Erasmus student in 2021.
 - ⛺ I'm in love with multi-day trekkings.
 - 🎲 Sometimes, during my spare time, I travel around Faerûn.
 
