@@ -6,7 +6,7 @@ I am Anna Nava, from Lecco (Italy).
 - 👩‍🎓 I have a **Bachelor degree in Mathematics** and on the 20th of October 2022, I graduated in **Data Science** at the University of Milan-Bicocca.
 - 🇦🇹 I attended the Alpen-Adria-Universität Klagenfurt as an Erasmus student in 2021.
 - ⛺ I'm in love with multi-day trekkings.
-- 🎲 From time to time, I travel around Valya as a Fire Genasi trying to resolve the mistery of Black Rain.
+- 🎲 From time to time, I travel around Varia as a Fire Genasi trying to resolve the mistery of Black Rain.
 
 - 📧 How to reach me: anva98@gmail.com
 
