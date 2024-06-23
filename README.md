@@ -8,7 +8,7 @@ I am Anna Nava, from Lecco (Italy).
 - ⛺ I'm in love with multi-day trekkings. Recently, I've also finished a rock climbing course and I'll be enthusiastic to share an adventure or my previous experiences information with you if you are interested. Next goal for this August: Alta Via n2 in Dolomiti, two weeks between Bressanone and Feltre.
 - 🎲 From time to time, I travel around Varia as a Fire Genasi trying to resolve the mistery of Black Rain.
 - :house: I've just moved in with my boyfriend: still managing not to set the house on fire.
-- :open_book: Particularly during my daily commute, I love reading. Open to any suggestion, I also really appreciate comics. One of my favorite is **Palestine** by Joe Sacco.
+- :open_book: Particularly during my daily commute, I love reading. Open to any suggestions, I also really appreciate comics. One of my favorite is **Palestine** by Joe Sacco.
 
 - 📧 How to reach me: anva98@gmail.com :watermelon:
 
