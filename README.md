@@ -5,7 +5,7 @@ I am Anna Nava, from Lecco (Italy).
 - 🔎 In my job, I search for contaminants in food to guarantee its safety. Artificial Neural Networks are my first allies in this mission. Look at my company website: https://www.x-next.com/
 - 👩‍🎓 I have a **Bachelor degree in Mathematics** and on the 20th of October 2022, I graduated in **Data Science** at the University of Milan-Bicocca.
 - 🇦🇹 I attended the Alpen-Adria-Universität Klagenfurt as an Erasmus student in 2021.
-- ⛺ I'm in love with multi-day trekkings. Recently, I've also finished a rock climbing course and I'll be enthusiastic to share an adventure or my previous experiences information with you if you are interested. Next goal for this August: Alta Via n2 in Dolomiti, two weeks between Bressanone and Feltre.
+- ⛺ I'm in love with multi-day trekkings. Recently, I've also finished a rock climbing course and I'll be enthusiastic to share an adventure or my previous experiences information with you if you are interested. Last goal achieved last August: Alta Via n2 in Dolomiti, two weeks between Bressanone and Feltre. Success celebrated with great Fabbrica di Pedavena beers 🍻
 - 🎲 From time to time, I travel around Varia as a Fire Genasi trying to resolve the mistery of Black Rain.
 - :house: I've just moved in with my boyfriend: still managing not to set the house on fire.
 - :open_book: Particularly during my daily commute, I love reading. Open to any suggestions, I also really appreciate comics. One of my favorite is **Palestine** by Joe Sacco.
